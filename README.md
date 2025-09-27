@@ -1,1 +1,1 @@
-2023 XYZ, Inc.
+2025 XYZ, Inc.
